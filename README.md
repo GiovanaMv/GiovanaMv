@@ -1,6 +1,6 @@
 Olá, sou a Giovana e trabalho como Dev Front-End 🌷✨💜
 
-Tenho interesse pelas áreas de Graphic Design, Front-End, UX, Games 🥰💜
+Tenho interesse nas áreas de Graphic Design, Front-End, UX, Games 🥰💜
 
 Atualmente estou graduando em Engenharia de Software 🚀✨
 
